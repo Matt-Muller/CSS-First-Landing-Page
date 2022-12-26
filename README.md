@@ -1,4 +1,4 @@
-Made in one day due to Christmas and little avaiable time. Didn't felt like the best work but i pretend to improve it one day.
+Made in one day due to Christmas and little available time. Didn't felt like the best work but i pretend to improve it one day.
 
 
 
